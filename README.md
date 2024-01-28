@@ -28,5 +28,5 @@ Happy coding, and may your learning journey be both fulfilling and transformativ
 
 Best regards,  
 GithubNexon 
-Email me
+Email me:
 Shareable Projects 101
